@@ -2,7 +2,7 @@
 
 # 👁️ Hey, I'm Nick (he/him)
 
-**CMO @ Into The Eye Enterprise** | **Co-Founder @ Pantheon LadderWorks**
+**Founder/CEO @ Into The Eye Enterprise** | **Co-Founder/CMO @ Pantheon LadderWorks**
 
 *"Turning financial confusion into financial confidence — one lesson at a time."*
 
